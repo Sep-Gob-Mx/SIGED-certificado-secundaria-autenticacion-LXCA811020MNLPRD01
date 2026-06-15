@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LXCA811020MNLPRD01
+LXCA811020MNLPRD01
